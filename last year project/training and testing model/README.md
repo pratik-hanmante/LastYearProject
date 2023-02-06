@@ -12,4 +12,4 @@ batch A-15
 2.Yash Gulhane
 3.Hariom Kumar
 
-under the guidance of Mrs.Pallav Sawant
+under the guidance of Mrs.Pallavi Sawant
